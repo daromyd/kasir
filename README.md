@@ -1,0 +1,1 @@
+saling memperbaiki kode kuy
